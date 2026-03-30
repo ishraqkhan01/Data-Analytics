@@ -87,8 +87,7 @@ I am currently open to:
 
 ## 📬 Connect With Me
 
-* LinkedIn: [Add Your LinkedIn Link]
-* GitHub: [Add Your GitHub Link]
+* LinkedIn: www.linkedin.com/in/ishraq-khan-30693b394
 
 ---
 
